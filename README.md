@@ -7,7 +7,9 @@ I conducted independent and collaborative research for over 20 years in both ind
 With strong communication skills and a strong back, I recently left a warehouse gig at United Tile, Portland, where I: 
 
 moved tons of tile (literally), 
+
 learned to drive a forklift, and 
+
 used my unique position to write custom software (Python) to improve efficiency in the United Tile warehouse.
 
 https://www.youtube.com/watch?v=3s6osPzlN9k
